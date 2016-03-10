@@ -21,6 +21,8 @@ No, this is not really about code development. Please share your favorite places
 * [Cannibale Royale](http://www.cannibaleroyale.nl/) - Cool Steaks and nice atmosphere
 * Wijnbar [Barrique](http://www.restaurantbarrique.nl/) - Nice food and great wines
 
+## Dessert
+* New York Cheesecake (http://www.starbucks.nl/promo/new-york-cheesecake) - All-time American Favorite
 
 ## Drinks
 * [Sky Lounge](http://www.skyloungeamsterdam.com/en/) - Good cocktails and a great view over Amsterdam :house: :cocktail:
